@@ -1,1 +1,1 @@
-https://marcscob.github.io/tabuada
+https://marcscob.github.io/Tabuada
